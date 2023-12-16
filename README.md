@@ -3,7 +3,7 @@
 Welcome to the Resource Repository, your go-to place for pro-plant-apps development! 🚀
 
 ## Tools & Software 🧰
-- Visual Studio Enterprise 2022
+- Visual Studio Enterprise 2022 - VHF9H-NXBBB-638P6-6JHCY-88JWH
 
 ## License Key 🔐
 - **License Key:** VHF9H-NXBBB-638P6-6JHCY-88JWH
