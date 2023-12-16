@@ -12,4 +12,4 @@ Feel free to explore, contribute, and let the coding adventure begin! 🌿✨
 
 ## Tuturial how can you enable your benefit with Enterprise ✨
 
-![Uploading xA98mxgA1j8mxmbv3sz09yr1.png…]()
+![Uploading mr.png…]()
