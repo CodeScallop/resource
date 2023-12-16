@@ -11,4 +11,4 @@ Welcome to the Resource Repository, your go-to place for pro-plant-apps developm
 Feel free to explore, contribute, and let the coding adventure begin! 🌿✨
 
 ## Tuturial how can you enable your benefit with Enterprise ✨
-![Tuturial how can you enable your benefit with Enterprise]([https://drive.google.com/file/d/1yy6Ob4zSjAan1QVyYuKFT19PoRbE7qSM/view?usp=drive_link](https://imgur.com/a/DIf0RkD)https://imgur.com/a/DIf0RkD)
+![Tuturial how can you enable your benefit with Enterprise]([https://imgur.com/a/DIf0RkD](https://imgur.com/a/DIf0RkD)https://imgur.com/a/DIf0RkD)
