@@ -12,5 +12,4 @@ Feel free to explore, contribute, and let the coding adventure begin! 🌿✨
 
 ## Tuturial how can you enable your benefit with Enterprise ✨
 
-![Uploading mr.png…]()
-or go to https://drive.google.com/file/d/1yy6Ob4zSjAan1QVyYuKFT19PoRbE7qSM/view?usp=sharing
+![watercolor of rocky staying alive -- DALLE (original, digital ink)](./1.png "watercolor of rocky staying alive -- DALLE (original, digital ink)") or go to https://drive.google.com/file/d/1yy6Ob4zSjAan1QVyYuKFT19PoRbE7qSM/view?usp=sharing
